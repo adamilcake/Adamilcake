@@ -9,4 +9,4 @@
  <br>That one Tmasc Futaba whateves.. Anyway, I'm just a silly guy who has 10 million interests. <br>I'm very friendly! Don't be afraid to talk to me :3 <b> My patreon will have WAY more info abt me :3 </b>
 <p align="center">
     <br><b>DNI:</b>
- <br><b>MINORS DNI. /SRS. THAT INCLUDES TURNING 18! Under 17 BYE</b>, Basic DNI, Proshippers, Roleplaying (I do NOT do this and will not respond) <br><b>KAELUC SHIPPERS</b> :Thumbs up:
+ <br><b>MINORS DNI. /SRS. THAT INCLUDES TURNING 18! 17 AND UNDER BYE</b>(You shouldn't even be on 18+ server), Basic DNI, Proshippers, Roleplaying (I do NOT do this and will not respond) <br><b>KAELUC SHIPPERS</b> :Thumbs up:
