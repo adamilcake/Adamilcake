@@ -1,5 +1,5 @@
 <p align="center">
-    <img width="600" src="https://static.wikia.nocookie.net/id5/images/3/31/SculptorCharacterDay2023CN.jpg/revision/latest/scale-to-width-down/1000?cb=20231119093643"
+    <img width="600" src="https://i.pinimg.com/564x/6d/a9/58/6da958d8be3ba61ffbea7b447f302313.jpg"
 <p align="center">
 </br>hi im <b>emil</b> |(<a href=https://en.pronouns.page/@Adamilcake>+</a>) | 21 | ENTP
 <br><b>whisper to INT</b> i'm always off tab 🫀
