@@ -1,7 +1,7 @@
 <p align="center">
     <img width="600" src="https://i.pinimg.com/564x/6d/a9/58/6da958d8be3ba61ffbea7b447f302313.jpg"
 <p align="center">
-</br>hi im <b>emil</b> |(<a href=https://en.pronouns.page/@Adamilcake>+</a>) | 21 | ENTP
+</br>hi im <b>gala</b> |(<a href=https://en.pronouns.page/@Adamilcake>+</a>) | 21 | ENTP
 <br><b>whisper to INT</b> i'm always off tab 🍎
 <br><b>interests:</b> <i>adamil</i> + more in my  <a href=https://adamilcake.straw.page/>strawpage!</a>
 <p align="center">
