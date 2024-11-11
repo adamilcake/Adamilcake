@@ -1,5 +1,5 @@
 <p align="center">
-    <img width="600" src="https://preview.redd.it/happy-valentines-day-v0-6oaan5qfv2ia1.jpg?width=1036&format=pjpg&auto=webp&s=d1b8d0e4f31bc214859204b4b0e98e187af93b16"
+    <img width="600" src="https://static.wikia.nocookie.net/id5/images/3/31/SculptorCharacterDay2023CN.jpg/revision/latest/scale-to-width-down/1000?cb=20231119093643"
 <p align="center">
 </br>hi im <b>emil</b> |(<a href=https://en.pronouns.page/@Adamilcake>+</a>) | 21 | ENTP
 <br><b>whisper to INT</b> i'm always off tab 🫀
