@@ -3,7 +3,7 @@
 <p align="center">
 </br>hi im <b>gala</b> |(<a href=https://en.pronouns.page/@Adamilcake>+</a>) | 21 | ENTP
 <br><b>whisper to INT</b> i'm always off tab 🍎
-<br><b>interests:</b> <i>adamil</i> + more in my  <a href=https://adamilcake.straw.page/>strawpage!</a>
+<br><b>interests:</b> <i>adamil</i> + more in my  <a href=https://galapple.straw.page/>strawpage!</a>
 <p align="center">
     <br><b>about me :3 </b>
  <br> i'm just a silly person who has 10 million interests. <br>i'm very friendly! don't be afraid to talk to me :3 <b> my patreon will have WAY more info abt me :3 </b>
