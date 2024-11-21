@@ -6,7 +6,7 @@
 <br><b>interests:</b> <i>adamil</i> + more in my  <a href=https://galapple.straw.page/>strawpage!</a>
 <p align="center">
     <br><b>about me :3 </b>
- <br> i'm just a silly person who has 10 million interests. <br>i'm very friendly! don't be afraid to talk to me :3 <b> my patreon will have WAY more info abt me :3 </b>
+ <br> i'm just a silly person who has 10 million interests. i am usually friendly! dont be afraid to say hello 
 <p align="center">
     <br><b>DNI:</b>
  <br><b> minors </b>, basic DNI, proshippers, roleplaying (i do NOT do this and will not respond) <br><b>KAELUC SHIPPERS</b> :thumbs up:
