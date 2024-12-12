@@ -6,7 +6,7 @@
 <br><b>interests:</b> aesop carl sadly + more of me in my <a href=https://emsop.straw.page/>strawpage</a>
 <p align="center">
     <br><b>about me :3 </b>
- <br> i'm just a silly person who has 10 million interests. i am usually friendly! dont be afraid to say hello 
+ <br>i'm usually off tab in idv section, i'm a sweet and normal and 2 appls tall. talk to me if oyu want yay
 <p align="center">
     <br><b>DNI:</b>
- <br><b> minors </b>, basic DNI, proshippers, roleplaying (i do NOT do this and will not respond) <br><b>KAELUC SHIPPERS</b> :thumbs up:
+ <br><b>minors</b>, basic DNI, proshippers, rp, <br><b>KAELUC SHIPPERS</b>:thumbs up:
