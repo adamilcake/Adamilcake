@@ -3,7 +3,7 @@
 <p align="center">
 </br>hi im <b>em</b> |(<a href=https://en.pronouns.page/@Adamilcake>+</a>) | 21 | ENTP
 <br><b>whisper to INT</b> i'm always off tab 
-<br><b>interests:</b> aesop carl sadly + more in my  <a href=https://emsop.straw.page/>strawpage!</a>
+<br><b>interests:</b> aesop carl sadly + more of me in my <a href=https://emsop.straw.page/>strawpage</a>
 <p align="center">
     <br><b>about me :3 </b>
  <br> i'm just a silly person who has 10 million interests. i am usually friendly! dont be afraid to say hello 
