@@ -5,7 +5,7 @@
 <br><b>whisper to int</b> i'm always off tab 
 <br><b>interests:</b> aesop carl sadly + more of me in my <a href=https://emsop.straw.page/>strawpage</a>
 <p align="center"> <br><b>about me</b>
- <br>i'm usually off tab in idv section, i'm a sweet and normal 
+ <br>i'm usually off tab in idv section, i'm sweet and normal 
 <br>and 2 appls tall. talk to me if oyu want yay
 <p align="center"><br><b>dni</b>
  <br><b>minors</b>, basic DNI, proshippers, rp, <br><b>kaeluc shippers</b> :thumbs up:
