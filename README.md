@@ -8,4 +8,4 @@
  <br>i'm usually off tab in idv section, i'm a sweet and normal 
 <br>and 2 appls tall. talk to me if oyu want yay
 <p align="center"><br><b>dni</b>
- <br><b>minors</b>, basic DNI, proshippers, rp, <br><b>KAELUC SHIPPERS</b> :thumbs up:
+ <br><b>minors</b>, basic DNI, proshippers, rp, <br><b>kaeluc shippers</b> :thumbs up:
